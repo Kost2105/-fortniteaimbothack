@@ -1,4 +1,4 @@
-# -fortniteaimbothack
+# -fortniteaimbotdownload
 
 
 **▎ Fortnite Aimbot**
